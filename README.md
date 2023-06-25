@@ -1,6 +1,7 @@
 BOA MEUS QUERIDOS!❤️<br> <hr>
 Sou a nathalia Molina.🫡🏳️‍🌈
 - 📚 Atualmente estou fazendo curso técnico de tecnologia 🖥️.
+- 🎨 Tendo um conhecimento na area de Design. 
 <br>
 
 Meus conhecimentos🧠 <hr>
